@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @leriocn
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning net6
+- 💞️ I’m looking to collaborate on any i can
+- 📫 How to reach me qq 764109520
